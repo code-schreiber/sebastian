@@ -1,4 +1,4 @@
-## I help purpose-driven organizations reduce their negative mobile app reviews by improving their app quality
+## I help purpose-driven organizations reduce their negative mobile app reviews
 
 ### I'm a mobile app quality consultant who helps purpose-driven organizations reduce their negative mobile app reviews. Unlike similar consultants, I offer a 100% money-back guarantee.
 
